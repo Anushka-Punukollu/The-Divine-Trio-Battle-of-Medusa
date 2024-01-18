@@ -1,1 +1,1 @@
-# The-Divine-Trio-Battle-of-Medusa
+# The Divine Trio: Battle of Medusa
